@@ -1,1 +1,1 @@
-islam
+islam religiya
