@@ -1,1 +1,1 @@
-islam religiya
+islam religiya edinobojiya
